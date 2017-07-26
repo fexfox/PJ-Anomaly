@@ -2,7 +2,7 @@
 
 ## :airplane: 到达
 
-+ 前往 __Kuala Lumpur__市区
++ 前往 __Kuala Lumpur__ 市区
   - __AirAsia X D7 313__
 
     > __PEK T2 - KUL Klia2__
